@@ -4,6 +4,14 @@ Jahr: 1985, Diogenes Verlag
 
 Autor: Patrick Süskind
 
+## Dinge die mir auffallen
+
+* es geht viel um Geruch in dem Buch, wird oft beschrieben wie etwas riecht
+
+* Viele lange Aufzählungen
+
+* Immer wenn Grenoullie jemanden verlässt stirbt diese Person Ausser seine Ziehmutter aber Ihr Tot wird auch beschrieben, die Toten wiegen sich immer in grossem Reichtum oder in einer schönen Zukunft und sterben.
+
 ## Zusammenfassungen 
 
 
@@ -28,3 +36,6 @@ Autor: Patrick Süskind
 |**17**|Das Parfum Nuit Napolitaine wird sofort zum verkaussschlager. Baldini wird zum begehrtesten Parfumeur der Stadt. Chénier kommt nichts komisch vor, da er zu viel zu tun hat mit Geldzählen. Baldini bringt Grenoullie bei, wie man die Werkzeuge eines Parfumeurs richtig benutzt und Formeln aufschreibt. Baldini schreibt jede Formel auf und trägt sie in zwei Bücher ein, eines Verwahrt er in einem Tresor, das andere hat er immer bei sich. Grenoullie wird so gut, er kann ohne es Experimentell auszuprobieren die Formeln für einen neunen Geruch direkt aufschreiben. Baldini sieht Grenoullie nicht mehr als jungen Frangipani oder Hexenmeister da er nun gelernt hat wie ein Parfumeur zu arbeiten. Grenoullie lullt Baldini ein, macht auch absichtlich manchmal fehler und er zeigt auch nicht die besten Gerüche die er sich ausdenkenkann um nicht als übermenschlich dazustehen. Weil er will von Baldini lernen wie man Gerüche physisch festhalten kann.|
 |**18**|Baldini zeigt Grenoullie, wie man alles herstellt, was Baldini in seinem Laden verkauft. Grenoullie hat keine Interessen an sachen die nicht riechen, sachen die Riechen (Tinkturen, Essenzen, etc.) findet er sehr interessant. Man sieht es im nur nicht an. Wenn sie Dinge destillierten erzählt Baldini von alten Zeiten, Grenoullie hört nicht zu, er hat nur augen für die Essenz die aus dem alambic kommt.| 
 |**19**|Grenoullie ist ein Meister des destilierens. Er hat das Gefühl das destilieren ist ein verfahren um den Duft einer Sache zu konzentrieren und in einer Essenz festzuhalten. Leider findet er aufgrund vieler Fehlversuche heraus, dass Man Dinge wie Steine, Metalle, Erde, Wasser etc. Nicht destillieren Kann. Die Tatsache, dass er diese Gerüche die er in seiner Phantasie trägt nicht realisieren kann erschüttert ihn zutiefts und macht ihn krank.|
+|**20**|Grenoullie bekommt hohes Fieber und Pustel. Der Artzt meint das er nur noch 48 Stunden zu Leben habe. Baldini probiert noch einige Formeln aus dem sterbenden rauszuquetschen. Baldini verzweifelt, da er grosse Pläne für sein geschäft hat und der junge jetzt nicht sterben kann. Der vor sich hineiternde Grenoullie fragt Baldini ob es noch andere Möglichkeiten gibt einem Körper seinen Duft zu entnehmen. Baldini antwortet es gibt noch drei (enfleurage en chaud, en froid und en l'huile) sie werden im Süden praktiziert, als Grenoullie diese Nachricht hört schläft er ein und ist innert einer Woche wieder genesen.|
+|**21**|Nach drei Jahren hatte Baldini alle seine Träume erfüllte, eine grosse Fabrik und exporte ins Ausland. Er stellte Grenoullie von seiner Arbeit frei unter drei Bedingungen: Er durfte Paris nicht mehr betretten solange Baldini noch lebte, er durfte keinen Duft herstellen oder keine Formel weitergeben und er musste über die ersten beiden Bedingungen schweigen. Das waren für Baldini keine Bedingungen, denn er hat nicht vor mit Parfumen sein Geld zu verdienen, er will nur sein inneres äussern. Grenoullie zieht los. Bladini gibt ihm beim Abschied nicht die Hand, er hat ihm nie die Hand gegeben aus einer art ekel.|
+|**22**|Baldini hat Grenoullie nie gemocht, er ist sehr froh als Grenoullie das Haus verlässt, es war im immer unangenehm mit ihm. Es wird klaar das auch Baldini einwenig ein schlechtes gewissen hat, er hat sich immer gedachut hoffentlich muss er nie dafür bezahlen dass er den jungen so ausnutzt. Baldini will in die Kirche gehen und Gott für sein Glück danken, doch etwas kommt ihm dazwischen. In der Nacht auf Grenoullies gehen, Bricht die Brücke zusammen und sein Haus stürtzt in die Seine. Baldini und seine Frau sterben und der ganze Reichtum ist weg. Chéniere bekommt einen zusammenbruch, er hatte hoffnungen auf das Erbe Baldinis aber dies ist in der Seine verschwunden und wurde nicht mehr wieder gefunden.|
