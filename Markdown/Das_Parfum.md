@@ -4,13 +4,15 @@ Jahr: 1985, Diogenes Verlag
 
 Autor: Patrick Süskind
 
-## Dinge die mir auffallen
+## Sus züg
 
 * es geht viel um Geruch in dem Buch, wird oft beschrieben wie etwas riecht
 
 * Viele lange Aufzählungen
 
 * Immer wenn Grenoullie jemanden verlässt stirbt diese Person Ausser seine Ziehmutter aber Ihr Tot wird auch beschrieben, die Toten wiegen sich immer in grossem Reichtum oder in einer schönen Zukunft und sterben.
+
+* Grenoullie wird mit einem zeck verglichen
 
 ## Zusammenfassungen 
 
