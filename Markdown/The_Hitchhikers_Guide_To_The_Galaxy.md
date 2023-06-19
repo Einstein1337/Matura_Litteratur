@@ -1,0 +1,45 @@
+# The Hitchhiker's Guide to the Galaxy
+
+## Info
+
+Author: Douglas Adams
+
+Year: 1985
+
+Genre: Sci-Fi Comedy
+
+## Summary 
+
+Arthur Dent, a 30-year-old Englishman, lives in an unexceptional house. One morning, Mr. L. Prosser comes to Arthur's house informing him that it will be demolished to form a bypass. Arthur protests, but the impatient Mr. Prosser tells him that if he had a problem with it, he could have protested at the appropriate time, and that the plans were "easily accessible" in a dark, locked cellar.
+
+Arthur's friend Ford Prefect, who is, in fact, an alien from Betelgeuse (which Arthur does not yet know), comes up to his house and demands that he go to a pub with him immediately. Arthur eventually agrees and Ford convinces Prosser not to knock down the house while they are gone. Ford then informs Arthur that the end of the world is mere minutes away.
+
+The odd pair makes fools of themselves in the pub, which is typical of them due to their awkward tendencies. Ford continues to insist that the end of the world is approaching fast.
+
+Several large yellow ships controlled by the grotesque Vogons are seen floating through space, coming straight towards earth. Ford informs Arthur that he will need a towel, a necessary tool for someone traveling through space. As the ships close in on the Earth, the Vogons announce that the earth will be destroyed in order to make space for a hyperspatial express route, and they are sorry for the inconvenience.
+
+The earth is destroyed, and Ford and Arthur hitchhike onto one of the yellow ships. Arthur learns that Ford had been stranded on the earth for fifteen years. He was a researcher for the famed Hitchhiker’s Guide to the Galaxy, a massive electronic compendium of almost everything.
+
+Meanwhile, Zaphod Beeblebrox, the charming but clueless figurehead president of the galaxy, steals a ship called the Heart of Gold. This ship contains an improbability drive, which can allow literally anything to happen.
+
+On the Vogon ship, Arthur first hears only gibberish. However, he is given a small fish—“the Babelfish”—which he inserts into his ear to allow him to understand any language, including that of the Vogons. When the pair is caught, they are forced to listen to terrible Vogon poetry and are eventually kicked off the ship by a Vogon brute. Just when they are about to die, the Heart of Gold starship picks them up and welcomes them aboard.
+
+While Zaphod and Trillian (his beautiful friend from earth) are pacing nervously about the cabin of the ship, they send their glum robot servant, Marvin, to check up on the two newcomers. Marvin explains to them that he is a failed experiment, one which was meant to give robots human-like characteristics but ended up leaving Marvin eternally gloomy. Marvin takes the pair to see Zaphod, whom both Ford and Arthur recognize—the former as his semi-cousin, the latter as a faux-human who picked up a girl he liked at a party. The girl is actually Trillion, who says hello to the pair, shocking Arthur. It is clear that the improbability drive is what saved the two hitchhikers.
+
+The newcomers soon find out that the ship is overly friendly: the computer talks way more than is necessary and the doors always thank them for no reason whenever they walk through. As the ship flies through space, Trillian can’t sleep because she is nervous in this new, unknown world. Zaphod can’t sleep because he is picked at by an indescribable nagging feeling in his brain. Ford can’t sleep due to sheer excitement. Arthur, however, is able to sleep simply because he is so tired.
+
+Convening in the control room, Trillian, Zaphod, and Ford find out that they are in the Horsehead Nebula, a massive, dark cloud, and are astonished to see a planet there. It is Magrathea, a planet which legend says was the wealthiest planet in the universe (it made its fortune building other dream planets for wealthy, disaffected people), but has since disappeared.
+
+The ship nears the planet, where they are greeted by a disembodied voice, which they find out is a five-million-year-old recording. Their computer then tells them that two missiles will be there in less than 30 seconds. They all panic, but Arthur has the idea to turn on the improbability drive, and the missiles suddenly turn into a sperm whale and a bowl of petunias, which both fall to the ground, the former making a large blubbery mess.
+
+Grateful for their survival, Arthur, Ford, Zaphod, Trillian, and Marvin alit on the planet and meander across its cold, bleak, and lonely surface. The whale had created a crater and an opening into the interior of the planet, so Zaphod, Trillian, and Ford begin to explore. Arthur stays with the unbearably miserable Marvin on the surface. He comes across an old man named Slartibartfast who explains that the planet’s inhabitants are not dead but merely asleep, which they decided to do in order to wait out the recession the planet experienced. He takes Arthur into the unbelievably large interior of the planet on an aircar. Slartibartfast shows Arthur a planet factory in which countless planets are being created, some by him. He then explains to Arthur that the Earth itself was actually built for a scientific purpose, and was coincidentally destroyed only five minutes before the completion of this purpose. He also tells his increasingly shocked visitor that the planet was paid for and run by mice, who are actually of far superior intelligence to humans.
+
+Slartibartfast then shows Arthur a detailed hologram in which a computer the size of a small city is built in order to answer many of the problems of life. Two scientists sit to speak with the computer, named Deep Thought, who tells them that it is only the second greatest computer in the history of the universe, refusing to tell them what the greatest computer is. The scientists then ask the computer to tell them the answer to life, the universe, and everything, which the computer replies that it can do; however, it must think about it for exactly 7 and a half million years. It then goes into Deep Thought mode, and is not heard of until it figures out the answer 7.5 million years later. In front of an enormous crowd, the computer announces that the answer to life, the universe, and everything is “forty-two.” Everyone is in the crowd is in silent shock until someone asks the computer if it can tell them the question to which “forty-two” is the answer. After a long pause, the computer replies that it cannot. It announces that there will be a new ten-million-year program that will find out the Ultimate Question. This program is the Earth.
+
+Slartibartfast tells Arthur that his arrival on the planet Magrathea is the third-most improbable event in the history of the universe. Arthur then tells Slartibartfast that he is having tremendous difficulty with his lifestyle. At the exact instant when he says these words, a wormhole opens up in space-time, carrying his words back into a distant ancient galaxy where two tribes were preparing to go to war. The problem is that the words “I seem to be having tremendous difficulty with my lifestyle” is conceived in their language as a terrible insult, and the tribes thus wage war for several centuries.
+
+Slartibartfast and Arthur take the aircar back to a small waiting room where they find Trillian, Zaphod, and Ford. They are about to share stories about what happened when two mice named Benjy and Frankie introduce themselves. The mice inform Slartibartfast that he will no longer need to create a new Earth, because all they need to do is use the brain of Arthur, one of earth’s last living remnants. They offer to buy his brain from him, but he refuses, seeing that they would dice his brain up and leave him with an electronically programmed brain at best. The mice become hostile and everything seems to be closing in on Arthur and his group when loud alarms suddenly burst out across the entire planet.
+
+As they try to escape, two armed Blagulon Kappa policemen yell out at them to stop immediately; they are here to arrest Zaphod and recover the stolen Heart of Gold. Zaphod and Ford manage to stall them for a while, but it seems to be all over as the armed figures close in on them quickly. However, their life-support systems explode at the last second, killing them and leaving the group safe. Ford, Zaphod, Trillion, and Arthur decide to get out of Magrathea as quickly as possible. They discover Slartibartfast’s aircar with a note telling them which button to push to turn it on and leave. Back at the Heart of Gold, Marvin tells them morosely that he’d plugged himself into the computer that controlled the policemen’s suit systems and their ship and told it his view of the universe. The computer committed suicide, hence the seemingly spontaneous explosions.
+
+The Heart of Gold departs. Arthur settles down with the Guide to learn about where he will now spend the rest of his life. Zaphod asks Arthur if he is hungry. When Arthur replies that he is, Zaphod announces that he will be taking the ship to the Restaurant at the End of the Universe.
